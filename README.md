@@ -1,1 +1,1 @@
-# DevOps_online_Kharkiv_2021_
+# DevOps_online_Kharkiv_2021_Summer
